@@ -26,3 +26,8 @@ you can approach , i might be offt so whisp
 
 
 im in other fandoms like ghost stories , mlp , homestuck and tbhk
+
+
+
+
+![image](https://github.com/user-attachments/assets/4c24e248-2a1e-4c8b-8b28-7f32739feeac)
