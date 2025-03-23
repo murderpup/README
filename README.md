@@ -2,12 +2,9 @@
 
 
 
-![image](https://files.catbox.moe/kl1149.png)
+![image](https://files.catbox.moe/qedv0a.png)
      
-
-
-![image](https://github.com/user-attachments/assets/9b227c0a-2419-44dd-9735-5cfde7a19f65)
-
+![image](https://github.com/user-attachments/assets/9b227c0a-2419-44dd-9735-5cfde7a19f65)  
 
 ![gif](https://files.catbox.moe/k4dtov.gif)
 
@@ -27,5 +24,8 @@ you can approach , i might be offt so whisp
 im in other fandoms like ghost stories , mlp , homestuck and tbhk
 
 
-![image](https://files.catbox.moe/1pp1ae.png)
+![gif](https://files.catbox.moe/ir6wy7.gif)
 
+![image](https://files.catbox.moe/08ozow.png)
+
+![image](https://files.catbox.moe/44se67.png)
