@@ -1,7 +1,6 @@
 # README
 
 
-
 ![image](https://files.catbox.moe/qedv0a.png)
      
 ![image](https://github.com/user-attachments/assets/9b227c0a-2419-44dd-9735-5cfde7a19f65)  
@@ -21,8 +20,8 @@ i like rdr (obviously) my favs r micah, dutch, bill, kieran, sean , trelawny and
 you can approach , i might be offt so whisp
 
 
-im in other fandoms like ghost stories , mlp , homestuck and tbhk
-
+im in other fandoms like ghost stories , mlp , homestuck, tbhk and nso
+![gif](https://files.catbox.moe/kyj7ct.gif)
 
 ![gif](https://files.catbox.moe/ir6wy7.gif)
 
