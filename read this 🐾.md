@@ -1,16 +1,15 @@
 # README
-hi
 
 
-⋆⁺₊⋆ ━━━━⊱༒︎ • ༒︎⊰━━━━ ⋆⁺₊⋆
+
+![image](https://files.catbox.moe/kl1149.png)
      
 
 
 ![image](https://github.com/user-attachments/assets/9b227c0a-2419-44dd-9735-5cfde7a19f65)
 
 
-⋆⁺₊⋆ ━━━━⊱༒︎ • ༒︎⊰━━━━ ⋆⁺₊⋆
-
+![gif](https://files.catbox.moe/k4dtov.gif)
 
 
 micah / comet , either is fine
@@ -28,6 +27,5 @@ you can approach , i might be offt so whisp
 im in other fandoms like ghost stories , mlp , homestuck and tbhk
 
 
+![image](https://files.catbox.moe/1pp1ae.png)
 
-
-![image](https://github.com/user-attachments/assets/4c24e248-2a1e-4c8b-8b28-7f32739feeac)
